@@ -1,1 +1,0 @@
-# pertemuan11
